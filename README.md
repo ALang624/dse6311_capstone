@@ -40,6 +40,6 @@ capstone-project/
 📊  Dr. Geist  🍄
 🎃 Brian D'Alelio 🎃
 
-:hear_no_evil: Another student... mystery!?! 🙉 
+- Alden George 🚜 
 
 
